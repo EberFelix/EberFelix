@@ -1,4 +1,4 @@
-👨‍🎓Im a 19 Year Old Computer Science Stundent
+👨‍🎓Im a Computer Science Stundent
 
 🏋️‍♂️I like working out
 
